@@ -2,8 +2,13 @@
 SEJA BEM VINDO!!
 
 - 🙂‍↕️ eu tenho interesse em códigos de progamaçao
-- 🤯estou aprendendo linguagem de programação 
+- 
+- 🤯estou aprendendo linguagem de programação
+- 
 - 😶‍🌫️ estou procurando colaborar com jogos e etc...
-- 🤣na minha casa 
-- 😜 apelidos  cunico,luizim 
+- 
+- 🤣na minha casa
+- 
+- 😜 apelidos  cunico,luizim
+- 
 -😃fatos sobre mim  sou lindo
