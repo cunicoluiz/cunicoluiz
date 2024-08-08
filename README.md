@@ -5,7 +5,7 @@ SEJA BEM VINDO!!
 - 
 - 🤯estou aprendendo linguagem de programação
 - 
-- 😶‍🌫️ estou procurando colaborar com jogos e etc...
+- 😶‍🌫️ estou proposto a  colaborar com jogos e etc...
 - 
 - 🤣na minha casa
 - 
