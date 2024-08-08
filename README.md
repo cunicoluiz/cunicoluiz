@@ -6,7 +6,8 @@ SEJA BEM VINDO!!
 - 🤯estou aprendendo linguagem de programação
 - 
 - 😶‍🌫️ estou proposto a  colaborar com jogos e etc...
-- 
+
+- 🇧🇷🇧🇷onde me achar-em campo largo parana Brasil
 - 
 - 😜 apelidos  cunico,luizim
 - 
