@@ -7,7 +7,6 @@ SEJA BEM VINDO!!
 - 
 - 😶‍🌫️ estou proposto a  colaborar com jogos e etc...
 - 
-- 🤣na minha casa
 - 
 - 😜 apelidos  cunico,luizim
 - 
