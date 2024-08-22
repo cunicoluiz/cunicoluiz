@@ -12,3 +12,7 @@ SEJA BEM VINDO!!
 - 😜 apelidos  cunico,luizim
 
 -😃fatos sobre mim  sou lindo
+
+
+
+![](https://giphy.com/gifs/pbsnewshour-pbs-newshour-news-hour-GBxwK6LJnj57hgIOvK)
